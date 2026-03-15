@@ -104,9 +104,9 @@ Features:
 
 ## 🌐 Connect With Me
 
-* 💼 LinkedIn: https://linkedin.com/in/YOUR_LINK
+* 💼 LinkedIn: https://linkedin.com/in/disha-patel-203077
 * 🌍 Portfolio: https://yourportfolio.com
-* 📧 Email: [your@email.com](mailto:your@email.com)
+* 📧 Email: [dishapatel3012@gmail.com](mailto:pateldisha220@gmail.com)
 
 ---
 
